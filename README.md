@@ -35,7 +35,7 @@ Extract the folder and run `index.html`
 ## Need help?
 
 
-Feel free to contact me via [Facebook](https://www.instagram.com/muskanrastogi1/).
+Feel free to contact me via [Instagram](https://www.instagram.com/muskanrastogi1/).
 
 Invite me to connect on [LinkedIn](https://www.linkedin.com/in/muskanrastogi/).
 
